@@ -1,4 +1,4 @@
-# 
+# instant bot de negociação NFT scripts é o melhor bot de negociação NFT scripts com acompanhamento de preço de piso e calculadora de lucros. Seguro, confiável e otimizado para
 
 
 
